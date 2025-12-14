@@ -1,1 +1,1 @@
-Just a cybersecurity guy passionate about motorsport
+Just an engineer passionate about motorsport
